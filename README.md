@@ -1,2 +1,2 @@
-# Feudal-Survival-nome-temp.-
+# Feudal-Survival (nome-temp.)
 Joguinho
